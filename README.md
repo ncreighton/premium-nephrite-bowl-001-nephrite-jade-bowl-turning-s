@@ -1,0 +1,2 @@
+# premium-nephrite-bowl-001-nephrite-jade-bowl-turning-s
+Struggling to turn raw nephrite jade into a flawless bowl without cracking or wasting expensive stone? This lab gives you the exact step-by-step system to master the ancient art of stone vessel carving—without the guesswork.  This isn't just another bowl turning guide. It's a complete craft lab designed specifically for nephrite jade, the toughest
